@@ -1,7 +1,7 @@
 ### Remidi UTS
 
 ### Download
-[Download Aplikasi](https://drive.google.com/file/d/0B36Y2xO8CvzlT1Q5TDRQUWNpUzQ/view?usp=sharing)
+[Download Aplikasi](https://drive.google.com/uc?export=download&id=0B36Y2xO8CvzlT1Q5TDRQUWNpUzQ)
 
 ### Identitas Siswa :
 * Nama          : Adristi Iftitah Yuniar
